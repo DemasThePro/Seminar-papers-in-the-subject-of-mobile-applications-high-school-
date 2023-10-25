@@ -1,0 +1,1 @@
+# Seminar-papers-in-the-subject-of-mobile-applications-secondary-school-
